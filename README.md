@@ -1,0 +1,1 @@
+# okinawacovid19
